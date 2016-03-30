@@ -1,0 +1,2 @@
+# ideas
+Revenue generating ideas
